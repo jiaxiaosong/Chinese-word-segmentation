@@ -1,0 +1,1 @@
+This is the process to form the lexcion about G20.
